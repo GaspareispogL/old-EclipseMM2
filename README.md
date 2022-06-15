@@ -1,2 +1,3 @@
 --Protected_by_MoonSecV2, Discord = 'discord.gg/gQEH2uZxUk'
 --idk who the owner is lol
+--bye yall
